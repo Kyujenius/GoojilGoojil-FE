@@ -18,8 +18,6 @@
 
 ## 🔗구질구질 바로 가기
 
-![스크린샷 2024-10-01 오후 2 28 34](https://github.com/user-attachments/assets/104e1812-4a87-42d2-a510-196d86987e47)
-
 
 [**🏠**](https://emojipedia.org/ko/%EC%A7%91)https://goojilgoojil.com/
 
